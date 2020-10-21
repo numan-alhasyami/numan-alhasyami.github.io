@@ -1,1 +1,0 @@
-# aksata-adventure.github.io
